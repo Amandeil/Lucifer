@@ -12,4 +12,6 @@ his younger's brothers.
 who's 
 lucifer's brother
 #who is lucifer
+#ok don't means I will only say
+
 
